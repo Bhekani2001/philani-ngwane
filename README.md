@@ -1,7 +1,7 @@
 # Philani Bhekani Ngwane
 
 Junior Software Engineer | Front-End Developer | Mobile Application Developer  
-Durban, KwaZulu-Natal, South Africa
+Pretoria, Gauteng, South Africa
 
 ---
 
